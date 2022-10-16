@@ -8,6 +8,8 @@ Don't judge my contributions by the graph below 🤪🤪🤪. It includes privat
 
 You can find my portfolio at https://shanaka.vitaz.dev if you need more information about my skills and contributions. (Please check it!!🫣🫣🫣 It took me around six hours to build it😵‍💫😵‍💫😵‍💫)
 
+Are you ready to grab a coffee with me?☕☕☕ That sounds great! We can start the discussion from blockchains... I think that would be a lot of fun! ✨✨✨
+
 <!---
 shanaka95/shanaka95 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
