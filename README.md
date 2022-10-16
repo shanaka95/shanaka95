@@ -4,7 +4,7 @@
 - 💞️ I am currently seeking to begin my postgraduate studies in above mentioned fields. (I'm just like you, searching for the perfect postgraduate opportunity. But you know what? I'm getting a little bit fed up.🥺🥺🥺 Can you offer me one? Wow, that would be awesome! 😍😍😍 )
 - 📫 If you need to contact me, you can reach me by sending an email to shanaka95@gmail.com. (I would much rather reply to emails than answer telephone calls,🤥🤥🤥 but don't tell anyone! It's our little secret.🤫🤫🤫)
 
-Don't judge my contributions by the graph below 🤪🤪🤪. It includes contributions for some crazy automated tasks 🥱🥱🥱 
+Don't judge my contributions by the graph below 🤪🤪🤪. It includes private contributions for some crazy automated tasks 🥱🥱🥱 (No, I can't delist private contributions. They need to be shown publically for some reason 🫠🫠🫠)
 
 You can find my portfolio at https://shanaka.vitaz.dev if you need more information about my skills and contributions. (Please check it!!🫣🫣🫣 It took me around six hours to build it😵‍💫😵‍💫😵‍💫)
 
