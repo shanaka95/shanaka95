@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Shanaka Anuradha (You can call me Shanaka if you'd like 😎😎😎)
-- 👀 I’m interested in Blockchains, Software Engineering, Web Development, and Cyber security. (Hey, I'm not the superman 🦸🦸🦸 to be an expert on all of it. But you know what... I like them all! ❤️❤️❤️)
+- 👀 I’m interested in Blockchains, Software Engineering, Web Development, and Cyber security. (Hey, I'm not the superman 🦸🦸🦸 to be an expert on all of it. But you know what... I am interested in and have at least basic knowledge and skills in, all the mentioned fields.! ❤️❤️❤️)
 - 🌱 I’m currently working as a Full Stack Developer. (Working remotely is no fun btw 🫥🫥🫥)
 - 💞️ I am currently seeking to begin my postgraduate studies in above mentioned fields. (I'm just like you, searching for the perfect postgraduate opportunity. But you know what? I'm getting a little bit fed up.🥺🥺🥺 Can you offer me one? Wow, that would be awesome! 😍😍😍 )
 - 📫 If you need to contact me, you can reach me by sending an email to shanaka95@gmail.com. (I would much rather reply to emails than answer telephone calls,🤥🤥🤥 but don't tell anyone! It's our little secret.🤫🤫🤫)
